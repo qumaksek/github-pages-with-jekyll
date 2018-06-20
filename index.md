@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Qumaksek's blog
 
-I'm glad you are here. I plan to talk about ...
+I plan to talk about ... war
